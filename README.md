@@ -33,7 +33,7 @@ Professional portfolio highlighting achievements in Business English instruction
 - CompTIA IT Fundamentals ✅
 - Microsoft Azure Fundamentals (AZ-900) ✅
 - Upcoming: MS-900, Microsoft Security, Compliance & Identity Fundamentals (by May 2026)
-- TEFL Diploma (Business English) – Dec 2025
+- TEFL Diploma (Business English) – Nov 2025
 
 ---
 
